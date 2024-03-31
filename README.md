@@ -1,2 +1,2 @@
-### I have 4 accounts currently
-@supechicken , stop obfuscationg my SHIT! https://github.com/chromebrew/chromebrew/discussions/9578
+### I am a kid who loves spamming
+@supechicken, sorry! I should introspect about what I have done last day!
